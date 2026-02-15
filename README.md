@@ -1,2 +1,0 @@
-# Te-amo-Gaby-
-Amor
